@@ -6,4 +6,14 @@
 [![Open In Colab](https://colab.research.google.com/assets/colab-badge.svg)](https://colab.research.google.com/drive/1eCd_JuZmxNkWwgAgYmbsigErbCiwbfTY?usp=sharing)
 
 
-https://github.com/user-attachments/assets/fe9fc436-e063-4215-b635-cbe48f67d66f
+
+https://github.com/user-attachments/assets/302552e5-e037-4bce-a5e3-ff943df76d2a
+
+
+
+https://github.com/user-attachments/assets/561c1dbd-eb56-43fc-99b0-8fea4281eb35
+
+
+
+https://github.com/user-attachments/assets/112f7759-178b-4b58-bb6e-ad05ce737428
+
